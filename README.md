@@ -59,6 +59,11 @@ of printer we want to select as shown in bellow.
 
 
 
+Drive link for the vedio:
+https://drive.google.com/file/d/1q96zypYCwydN9BEXlh7-ESoGvjgtcDMj/view?usp=sharing
+
+
+
 
 
 
